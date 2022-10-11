@@ -1,1 +1,1 @@
-# Savob.uz Videomurojjat orqali xabar qoldiradi
+# Savob.uz Videomurojaat orqali xabar qoldiradi
